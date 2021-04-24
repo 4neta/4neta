@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @4neta, I'm Polish, but I live in Hertforshire (UK). I'm a Bacherol of mathematics, but I regret I didn't study IT!
+- 👀 I’m interested in photography, table tennis, spirituality and psychology.
+- 🌱 I’m currently learning C#.
+- 💞️ I’m looking to collaborate with people without big experience, just to learn together!
+- 📫 How to reach me... just DM
